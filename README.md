@@ -1,1 +1,1 @@
-# [codifyimpact](http://codifyimpact.com)# codifyimpact.github.io
+# [codifyimpact](http://codifyimpact.com)
